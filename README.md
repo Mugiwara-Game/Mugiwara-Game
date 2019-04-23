@@ -1,1 +1,1 @@
-This is Mugiwara Game!!!
+THIS IS SUGOI GAME!!!
